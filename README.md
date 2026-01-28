@@ -1,0 +1,1 @@
+# Projekt-zaliczeniowy-informatyka-kognitywistyka-2025-26-Marceli-Stawiarski
